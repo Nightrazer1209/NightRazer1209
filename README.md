@@ -9,6 +9,6 @@ HEY HEY
 - 🤔 I’m looking for help with full-stack technologies
 - 💬 Ask me about: How i am / Am i still alive
 - 📫 How to reach me: limfongyew.lfy@gmail.com
-- 😄 Pronouns: He/ Nebulonius Quasarion Maximillian Thunderblade 
+- 😄 Pronouns: He
 - ⚡ Fun fact: I learn so much more from youtube than my 90k course 
 
