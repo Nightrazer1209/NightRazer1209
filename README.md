@@ -1,4 +1,4 @@
-### Hi there! It's Eddy here 👋
+### Hi there! It's Fong Yew here 👋
 HEY HEY
 
 **Nightrazer1209/NightRazer1209** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
